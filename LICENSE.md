@@ -1,4 +1,4 @@
-#  
+#  hypershot Script secure offers the most advanced hypershot Script, with invisibility and auto-upgrade. Perfect for dominating any match.
 
 
 
